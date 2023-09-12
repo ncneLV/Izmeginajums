@@ -1,0 +1,2 @@
+# Izmeginajums
+ok
