@@ -1,2 +1,2 @@
 # Izmeginajums
-ok
+tu melns
